@@ -7,7 +7,7 @@
   - Product design & prototyping
   - Online education tools for the auto industry
 - 📫 How to reach me: aztintdude@outlook.com
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: Your majasty
 - ⚡ Fun fact: I’ve been tinting windows for over 30 years, love riding dirt bikes, catching sunsets, and creating things that help people stay safe.
 
 <!---
